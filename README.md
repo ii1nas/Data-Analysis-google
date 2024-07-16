@@ -5,6 +5,9 @@
 للتقديم 
 https://forms.nelc.gov.sa/ar/SDA/Fuel?utm_source=brevo&utm_campaign=%20%20_copy_copy&utm_medium=email
 حساب في القيت هب قد يفيدك في اجتياز الدورة 
+
+
+
 https://github.com/alsobihi/data-analytics
 
 وهنا تجدون رابط قروب البرنامج في التليقرام 
